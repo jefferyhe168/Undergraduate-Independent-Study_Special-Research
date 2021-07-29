@@ -1,2 +1,2 @@
-# Undergraduate-Independent-Study_Special-Research
+# Undergraduate Independent Study (Special Research)
 My independent study in university
